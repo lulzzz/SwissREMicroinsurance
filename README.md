@@ -1,1 +1,1 @@
-# Blockchain Concept for Swiss RE Africa Micro-insurance 
+# Blockchain Concept for Swiss RE Agriculture Micro-insurance in Africa
